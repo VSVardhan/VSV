@@ -1,2 +1,0 @@
-# VSV
-MY PROJECTS
